@@ -2,7 +2,7 @@
 
 家常菜视频非常接地气，现将各期视频整理在这里:white_flower:
 
- 周末买好食材 自己学着做 :beach_umbrella:  一周学一道菜:smiley_cat:
+周末买好食材 自己学着做 :beach_umbrella:  一周学一道菜:smiley_cat:
 
 
 #### 视频分集-持续更新
@@ -146,8 +146,17 @@
 
 
 
+# 其它
 
+[牛肉划蛋盖饭](https://pan.baidu.com/s/1CmYH4HIEqkmnJOQNwp7qAQ)
 
+[番茄炸蛋面](https://pan.baidu.com/s/10tyJnZ3ixwX2-CsmFfjxhA)
+
+[湖州羊肉面](https://pan.baidu.com/s/1-RUIf5soppHhEBqgd-pAPw)
+
+[蒜泥白肉](https://pan.baidu.com/s/1qvA9edS06KThNiXcz9S-4w)
+
+[油爆虾](https://pan.baidu.com/s/1k9ZSjI-3kdGy-JiloUAwcw)
 
 
 
