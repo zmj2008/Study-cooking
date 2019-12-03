@@ -21,6 +21,8 @@
 
 [醋溜大白菜](https://pan.baidu.com/s/14O27QcbvdAb6Y3ZoGqZLiA)
 
+[酸辣大白菜](https://pan.baidu.com/s/1FKs_HnE8AyZqOxUkQG2EVQ)
+
 [炝炒土豆丝](https://pan.baidu.com/s/1O4ITPr53lEEfHIYPKU7qog)
 
 [肉末烧茄子](https://pan.baidu.com/s/1lnVGDZfFkoOXCQA9qrVydQ)
@@ -28,6 +30,8 @@
 [鱼香茄子](https://pan.baidu.com/s/1mUD-tNKu_MR3ABpuk3VIBg)
 
 [手工番茄鸡蛋面](https://pan.baidu.com/s/1czWobDkECm0Hx2asHz2Nmw)
+
+[川味牛肉面](https://pan.baidu.com/s/1pr4dYdGsc3yqxMxwgtis6Q)
 
 [汆水丸子](https://pan.baidu.com/s/13an4vDGnkkG5oXdm9heG9g)
 
@@ -45,11 +49,15 @@
 
 [辣炒鸡爪](https://pan.baidu.com/s/1ZfqVR_HRc2rDIAOUj-8CkQ)
 
+[可乐鸡翅](https://pan.baidu.com/s/1JHF3o1jYQPAz37HWJtc74w)
+
 [回锅肉](https://pan.baidu.com/s/1428dx5W3V7nP58G1DbSRIA)
 
 [口味猪肝](https://pan.baidu.com/s/1OQPiqMZ0RLFTyPxkT2QP6A)
 
 [老鸭萝卜汤](https://pan.baidu.com/s/1_52hZ1c1_YIcHD6Z3I43tw)
+
+[干锅鸭脚](https://pan.baidu.com/s/15PI-cBwNco0BSM9-Z6Mr2A)
 
 [碎炒羊肉](https://pan.baidu.com/s/1CVo2KFMIQGX2lipeODONqA)
 
@@ -70,6 +78,8 @@
 [盐烧鲈鱼](https://pan.baidu.com/s/1iWAiz0d-SThgOoiQURjGTQ)
 
 [椒香鲤鱼](https://pan.baidu.com/s/1lqQRug3T2mX7Y-6uZznhCA)
+
+[葱香鲫鱼](https://pan.baidu.com/s/1jSkppg3LwJtT79MKe2Rk9A)
 
 [生焖鱼头](https://pan.baidu.com/s/1SDHbZlL_wsJA4iL1M6rBqw)
 
@@ -102,6 +112,8 @@
 [如何检验注水牛肉和猪肉](https://pan.baidu.com/s/1bE2ISXLIk4A1OnwPjdDRyA)
 
 [挑选猪前后腿](https://pan.baidu.com/s/1Rn9viqbtp-sXcWjlLkqEiA)
+
+[家猪分解](https://pan.baidu.com/s/1N8e1KeCRPtUnH6I_iKD8zA)
 
 
 
