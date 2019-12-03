@@ -53,6 +53,8 @@
 
 [回锅肉](https://pan.baidu.com/s/1428dx5W3V7nP58G1DbSRIA)
 
+[糖醋排骨](https://pan.baidu.com/s/1G37ylhJUSmOx64N4MZ_-zg)
+
 [口味猪肝](https://pan.baidu.com/s/1OQPiqMZ0RLFTyPxkT2QP6A)
 
 [老鸭萝卜汤](https://pan.baidu.com/s/1_52hZ1c1_YIcHD6Z3I43tw)
